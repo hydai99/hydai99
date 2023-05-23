@@ -26,7 +26,7 @@
 - 💬 Feel free to ask me anything.
 - ⚡ Focus on Data Science area.
 
-> ***Happy to make friend!😊***
+> ***Happy to make friend! 😊***
 
 
 
